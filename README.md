@@ -1,0 +1,1 @@
+* Automatically apply for jobs in interested area
